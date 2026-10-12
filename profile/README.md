@@ -48,6 +48,6 @@ Didukung oleh tenaga teknis berpengalaman, rantai pasok distributor resmi, dan f
 
 * **Kantor Pusat:** Bandung, Jawa Barat, Indonesia  
 * **Situs Web Resmi:** [globaltekprodigi.co.id](https://globaltekprodigi.co.id) | [globaltekprodigi.com](https://globaltekprodigi.com)  
-* **Email Resmi:** globaltek.prodigi@gmail.com  
+* **Email Resmi:** contact@globaltekprodigi.com  
 * **Layanan WhatsApp / Telepon:** +62 811-2128-107  
 * **Penanggung Jawab Operasional:** Rahmat Febiansyah (Manajer Operasional)  
